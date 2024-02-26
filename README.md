@@ -16,7 +16,8 @@ Advanced cybersecurity techniques
 Projects in the area of cloud computing
 
 ## 📫 **Reach me at:**
-zaki.att40@gmail.com
+Email:  zakiatt40@gmail.com
+Facebook: yoruzaki
 
 ## 😄 **Pronouns:**
 He/Him

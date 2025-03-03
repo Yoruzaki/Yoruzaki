@@ -20,8 +20,6 @@ Email:  zakiatt40@gmail.com
 
 Facebook: yoruzakii
 
-## 😄 **Pronouns:**
-He/Him
 
 ## ⚡ **Fun fact:**
 Embarked on a journey of exploration after losing my best project, leading me to platforms like GitHub for collaboration and skill enhancement.

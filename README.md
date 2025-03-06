@@ -16,9 +16,9 @@ Advanced cybersecurity techniques
 Projects in the area of cloud computing
 
 ## 📫 **Reach me at:**
-Email:  zakiatt40@gmail.com
+Email:  attalah.zakaria@univ-khenchela.dz
 
-Facebook: yoruzakii
+Facebook: yoruzaki
 
 
 ## ⚡ **Fun fact:**

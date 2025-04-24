@@ -1,6 +1,6 @@
 <div align="center">
 
-# 👋 Hi there, I’m @Yoruzaki!
+# 👋 Hi there, I’m Zineb!
 
 ## 👀 **Passionate about:**
 - Technology

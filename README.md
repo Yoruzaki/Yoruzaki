@@ -15,10 +15,7 @@ Advanced cybersecurity techniques
 ## 💞️ **Looking to collaborate on:**
 Projects in the area of cloud computing
 
-## 📫 **Reach me at:**
-Email:  attalah.zakaria@univ-khenchela.dz
 
-Facebook: yoruzaki
 
 
 ## ⚡ **Fun fact:**

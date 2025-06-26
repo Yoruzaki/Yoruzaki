@@ -1,6 +1,6 @@
 <div align="center">
 
-# 👋 Hi there, I’m Zineb!
+# 👋 Hi there, I’m Zakaria!
 
 ## 👀 **Passionate about:**
 - Technology
